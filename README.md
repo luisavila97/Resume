@@ -1,2 +1,2 @@
-# Resume
-My curriculum 📚
+# Resume 📚
+My curriculum 
